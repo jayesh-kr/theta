@@ -1,4 +1,4 @@
 # theta15
 
-COming soon - Landng page.
+Coming soon - Landng page.
 
